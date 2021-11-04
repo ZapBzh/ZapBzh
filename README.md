@@ -1,4 +1,4 @@
 - 👋 Salut ! Moi c'est Léo"ZapBzh"Ferron
 - 👀 Je suis passionné de jeux vidéo, d'eport Rocket league et supporte la Team Vitality !!
 - 🎓 En étude de game desing 
-- 💞️ En couple avec la meilleur petite amie du monde !! <3..
+- 💞️ En couple avec la meilleur petite amie du monde !! <3
